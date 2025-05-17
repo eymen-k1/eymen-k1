@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning "I am taking programming courses in Python and C#."
 
 
-- 💞️ I’m looking to collaborate on I'm definitely interested. Let's talk more about it.
+- 💞️ I’m looking to collaborate on I'm definitely interested.
 
 - 📫 How to reach me: my gmail: eymenkucukyilmaz01@gmail.com
 -  my telephone number: 90 551 469 1882
